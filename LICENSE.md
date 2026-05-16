@@ -1,4 +1,4 @@
-# 
+# top nft sniper bot | slippage-control + early-mint-access is the best nft sniper bot, featuring slippage-control and early-mint-access. Fast, smart, and optimized for NFT trading
 
 
 
